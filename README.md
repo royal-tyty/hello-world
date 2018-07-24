@@ -1,2 +1,5 @@
 # hello-world
 Hidyhoeee
+I LIKE TURTLES
+PONY
+DANGERRRRR- ERYKAH BADUUUUU
